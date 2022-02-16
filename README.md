@@ -1,0 +1,446 @@
+## Type Foundries
+
+### 🇦🇷 Argentina 
+
+
+[Huerta Tipográfica](http://www.huertatipografica.com/en) 
+
+[Twentyfive](https://betwentyfive.com/typefaces/) 
+
+[Nodo Typefoundry](https://nodotypefoundry.com/catalogue/) 
+
+### 🇦🇹 Austria
+
+### [Hungarumlaut](https://hungarumlaut.com/typefaces.html) 
+
+[David Einwaller](https://deinwaller.com/) 
+
+### 🇧🇪 Belgium
+
+[Love Letters](http://love-letters.be/foundry.html) 
+
+### 🇧🇷 Brazil
+
+[Blackletra](https://blackletra.com/) 
+
+### 🇨🇦 Canada
+
+[Coppers and Brasses](http://coppersandbrasses.com/retail-fonts/) 
+
+[Pangram Pangram Foundry](http://pangrampangram.com/) 
+
+[FEEDTYPE](https://feedtype.ca/en/typefaces/) 
+
+[Boulevard LAB Type Foundry](https://boulevardlab.com/) 
+
+### 🇨🇴 Colombia
+
+[Bastarda Type](https://www.bastardatype.com/fonts.php) 
+
+### 🇨🇿 Czech Republic
+
+[Suitcase Type Foundry](http://www.suitcasetype.com/fonts) 
+
+[Displaay Type Foundry](http://www.displaay.net/) 
+
+[Heavyweight](http://www.heavyweight.cz/) 
+
+[Briefcase Type Foundry](https://www.briefcasetype.com/fonts) 
+
+[Magio](http://www.magio.org/cs/fonts) 
+
+[Kometa](https://www.kometa.xyz/typefaces/) 
+
+[Fonts | Superior Type](https://www.superiortype.com/fonts) 
+
+### 🇩🇰 Denmark
+
+[PLAYTYPE](https://playtype.com/) 
+
+[Approximate Type Foundry](https://approxtype.com/) 
+
+### 🇪🇪 Estonia
+
+[Kirjatehnika](https://www.kirjatehnika.ee/) 
+
+### 🇫🇮 Finland
+
+[No Bad Type](https://nobadtype.com/) 
+
+[Typolar](http://www.typolar.com/) 
+
+[Helsinki Type Studio](https://helsinkitypestudio.com/) 
+
+### 🇫🇷 France
+
+[AinsiFont Fonderie Digitale](http://www.ainsifont.com/) 
+
+[Apeloig Type Library](http://nouvellenoire.ch/products/a-abf-lineaire) 
+
+[Production Type](https://www.productiontype.com/) 
+
+[A is for — Fonts](https://aisforfonts.com/fonts) 
+
+[Police Studio](http://policestudio.fr/shop?#home) 
+
+[Bureau Brut](https://bureaubrut.com/en/product-category/fonts/) 
+
+[bb-bureau](http://www.bb-bureau.fr/post/54693199038/mineral) 
+
+[SMeltery](http://www.smeltery.net/) 
+
+[205 foundry](https://www.205.tf/) 
+
+[LIFT](http://www.lift-type.fr/) 
+
+[Blaze Type](https://blazetype.eu/) 
+
+[Inès Davodeau](https://inesdavodeau.com/Type-Shop) 
+
+[Welcome – Apex Type Foundry](https://www.apextypefoundry.com/) 
+
+[Eliott Grunewald](https://eliottgrunewald.xyz/) 
+
+[Antoine Elsensohn](https://antoine-elsensohn.tumblr.com/tagged/typedesign) 
+
+[Pizza Typefaces](https://typefaces.pizza/) 
+
+### 🇩🇪 Germany
+
+[La Bolde Vita](https://laboldevita.com/fonts) 
+
+[Gruppo Due](https://gruppo-due.com/) 
+
+[Schick Toikka](https://www.schick-toikka.com/) 
+
+[Neubau](https://neubauladen.com/) 
+
+[TIGHTYPE](http://tightype.com/) 
+
+[Brownfox](https://brownfox.org/) 
+
+[typocalypse now!](http://www.typocalypse.com/) 
+
+[Camelot](https://camelot-typefaces.com/) 
+
+[Stereotypes](http://www.stereotypes.de/) 
+
+[TypeMates](https://www.typemates.com/) 
+
+[NEW LETTERS](http://www.new-letters.de/) 
+
+[Riesling Type](http://www.rieslingtype.com/) 
+
+[Just Another Foundry](http://justanotherfoundry.com/) 
+
+[Fontfarm](http://www.fontfarm.de/themes/fonts/fonts/index.php) 
+
+[Kilotype](https://kilotype.de/) 
+
+[TypeThis!Studio](https://www.typethis.studio/typefaces/) 
+
+[Typefaces – Nikolas Type](https://www.nikolastype.com/typefaces) 
+
+[Revolver Type Foundry | Typefaces](https://www.revolvertype.com/typefaces/) 
+
+### 🇬🇷 Greece
+
+[ATYPICAL](https://atypical.gr/) 
+
+### 🇮🇸 Iceland
+
+[Or Type](http://www.ortype.is/) 
+
+### 🇮🇳 India
+
+[Indian Type Foundry](https://www.indiantypefoundry.com/) 
+
+### 🇮🇩 Indonesia
+
+[degarism](https://degarism.com/) 
+
+[Tegamitype](https://tegamitype.com/typefaces) 
+
+### 🇮🇪 Ireland
+
+[Signal Foundry](https://signalfoundry.com/) 
+
+### 🇮🇹 Italy
+
+[AlfaType Fonts Foundry](http://www.alfatypefonts.com/index.html) 
+
+[Resistenza](http://www.resistenza.es/typefaces/) 
+
+[CAST](http://c-a-s-t.com/about/) 
+
+[Think Work Observe](https://t-wo.it/typography/) 
+
+[Zetafonts](http://www.zetafonts.com/) 
+
+[Fabrizio Schiavi](https://fsd.it/product-category/fonts/#shop) 
+
+[http://www.giuliaboggio.xyz/bastardo.html](http://www.giuliaboggio.xyz/bastardo.html) 
+
+### 🇯🇵 Japan
+
+[Dharma Type](http://dharmatype.com/) 
+
+### 🇱🇧 Lebanon
+
+[29Letters](https://www.29lt.com/fonts-catalogue) 
+
+### 🇲🇽 Mexico
+
+[Non Foundry](https://nonfoundry.com/) 
+
+### 🇳🇱 Netherlands
+
+[Bold Monday](https://www.boldmonday.com/) 
+
+[ARS Type](http://arstype.angusrshamal.com/typefaces) 
+
+[Truly Type](https://trulytype.com/) 
+
+[Regular Bold Italic](http://regularbolditalic.com/) 
+
+[Bold Decisions](https://www.bold-decisions.biz/) 
+
+[Autograph](https://autograph.works/buy/) 
+
+[Jung-Lee Type Foundry](https://www.jung-lee.nl/) 
+
+[Soft Machine Typefaces](https://openstudio.sellfy.store/) 
+
+### 🇳🇿 New Zealand
+
+[Klim Type Foundry](https://klim.co.nz/) 
+
+### 🇳🇴 Norway
+
+[The Pyte Foundry](http://thepytefoundry.net/) 
+
+[Good Type Foundry](http://goodtypefoundry.com/) 
+
+[Monokrom](https://monokrom.no/catalogue) 
+
+[Typefaces](https://wearegradient.net/typefaces/) 
+
+### 🇵🇹 Portugal
+
+[Feliciano Type Foundry](http://www.felicianotypefoundry.com/cms/) 
+
+[DSType Foundry](http://dstype.com/) 
+
+[R-Typography](https://www.r-typography.com/fonts) 
+
+[KOBU Foundry - Play and unlock our best Fonts!](https://www.kobufoundry.com/) 
+
+### 🇷🇺 Russia
+
+[type.today](https://type.today/en) 
+
+### 🇸🇰 Slovakia
+
+[Setup Type](https://www.setuptype.com/fonts) 
+
+[DizajnDesign Fonts](http://www.dizajndesign.sk/en/fonts) 
+
+[CarnokyType → fonts • typography](https://carnokytype.com/) 
+
+### 🇪🇸 Spain
+
+[Emtype Foundry](http://emtype.net/) 
+
+[Ultra Types](http://www.ultratypes.com/) 
+
+[atipo foundry](http://atipofoundry.com/) 
+
+[Tipografies](http://www.tipografies.com/fonts/) 
+
+[Resistenza](http://www.resistenza.es/typefaces/) 
+
+### 🇸🇪 Sweden
+
+[Letters from Sweden](http://lettersfromsweden.se/) 
+
+[Kanon Foundry](https://kanonfoundry.com/) 
+
+### 🇨🇭 Switzerland
+
+[Grilli Type](https://www.grillitype.com/) 
+
+[Letterwerk](http://letterwerk.ch/) 
+
+[Luzi Type](https://luzi-type.ch/index.html) 
+
+[Milieu Grotesque](http://www.milieugrotesque.com/typefaces/) 
+
+[Optimo Type Foundry](http://www.optimo.ch/home.html) 
+
+[Radim Pesko](http://radimpesko.com/fonts) 
+
+[Swiss Typefaces](https://www.swisstypefaces.com/) 
+
+[Binnenland Type Foundry](http://www.binnenland.ch/font/library/) 
+
+[Typedifferent](http://www.typedifferent.com/) 
+
+[EuropaType](http://www.europatype.com/) 
+
+[Fatype](https://fatype.com/typefaces) 
+
+[RazziaType](http://razziatype.com/) 
+
+[ECAL Typefaces](https://ecal-typefaces.ch/) 
+
+[Dinamo Typefaces](http://www.abcdinamo.com/) 
+
+[idealphabet](http://www.idealphabet.com/index.php?menu=fonts) 
+
+[Nootype](http://nootype.com/) 
+
+[Kobi Benezri Studio](https://www.kobibenezri.com/filter/Fonts) 
+
+[Out of the Dark](https://outofthedark.xyz/) 
+
+[Kaj Lehmann](https://kajlehmann.ch/typefaces) 
+
+[Home » Altiplano](https://altiplano.xyz/) 
+
+[Extraset | Independent Swiss Type Foundry](https://extraset.ch/) 
+
+[Monkey Type](http://monkeytype.xyz/) 
+
+### 🇹🇭 Thailand
+
+[Produce](http://www.producebkk.com/) 
+
+### 🇬🇧 United Kingdom
+
+[FrosType](https://www.frostype.com/) 
+
+[A2-TYPE](http://www.a2-type.co.uk/) 
+
+[Colophon Foundry](http://www.colophon-foundry.org/) 
+
+[Commercial Type](https://commercialtype.com/catalog/dala_floda) 
+
+[Dalton Maag](https://www.daltonmaag.com/library) 
+
+[K-Type](http://www.k-type.com/) 
+
+[Type.land](http://www.type.land/) 
+
+[Newlyn](https://newlyn.com/) 
+
+[Talbot Type](http://www.talbottype.co.uk/typefaces/) 
+
+[F37 Foundry](http://www.f37foundry.com/font-library) 
+
+[CoType Foundry — London based type foundry of Mark Bloom and Co.](https://cotypefoundry.com/) 
+
+### 🇺🇸 United States of America
+
+[edition.studio](https://edition.studio/type-foundry) 
+
+[Process Type Foundry](https://processtypefoundry.com/fonts/) 
+
+[T.26 Digital Type Foundry](http://www.t26.com/) 
+
+[Avondale Type Co.](https://avondaletypeco.com/fonts/) 
+
+[Scribble Tone](https://www.scribbletone.com/typefaces) 
+
+[Type Supply](https://typesupply.com/) 
+
+[Kontour](http://www.kontour.com/typeface/odile/) 
+
+[XYZ Type](http://xyztype.com/) 
+
+[Templar Type](http://templar-type-foundry.tumblr.com/) 
+
+[MCKL](https://mckltype.com/typefaces) 
+
+[OH no Type Company](http://www.ohnotype.co/) 
+
+[Sharptype](http://www.sharptype.co/) 
+
+[JTD Type Foundry](https://jtdtype.com/) 
+
+[Nuform Type – Type Foundry](https://nuformtype.com/) 
+
+___
+
+## Collections
+
+[Open Foundry](https://open-foundry.com/) 
+
+[OSP (Open Source Publishing) →](http://osp.kitchen/foundry/) 
+
+[fontain](https://fontain.org/#@80) 
+
+[FontsArena](https://fontsarena.com/) 
+
+[⚧ LIBRE FONTS BY WOMXN](https://www.design-research.be/by-womxn/) 
+
+[Free Font Library](http://typotheque.luuse.io/) 
+
+[Use & Modify](https://usemodify.com/) 
+
+[Typeverything – Great fonts by cool designers](https://typeverything.com/) 
+
+### Open Source
+
+[Violet Sans](https://github.com/violetoffice/violet_sans) 
+
+[Optician Sans](https://optician-sans.com/) 
+
+[Recursive Sans & Mono](https://www.recursive.design/) 
+
+[Kulim Park](https://noponies.github.io/Kulim-Park/) 
+
+[Manrope](https://manropefont.com/) 
+
+### Commercial
+
+[Lust Text ← Positype](https://positype.com/product/font/lust-text) 
+
+[Pulpo - Typeface](https://www.floodfonts.com/pulpo/) 
+
+[Gustavo — Lift Type](https://www.lift-type.fr/shop/typography/gustavo/) 
+
+[Greed - Displaay Type Foundry](https://displaay.net/typeface/greed/) 
+
+[Gooper Text by Very Cool Studio - Future Fonts](https://www.futurefonts.xyz/very-cool-studio/gooper-text) 
+
+[MonoLisa - Get MonoLisa](https://www.monolisa.dev/buy) 
+
+[NewsSerif is an editorial typeface family for headlines and copy. It’s the sister typeface to NewsSans.](https://charactertype.com/typefaces/newsserif/?utm_campaign=Fresh%20Fonts&utm_medium=email&utm_source=Revue%20newsletter) 
+
+[TIGHTYPE   Peclet](https://tightype.com/typefaces/peclet) 
+
+[Cosmos® Pro](https://www.bertholdtypes.com/font/cosmos/pro/) 
+
+[TXT25 by Phantom Foundry - Future Fonts](https://www.futurefonts.xyz/phantom-foundry/txt25) 
+
+### Icons
+
+[Material icons](https://fonts.google.com/icons) 
+
+[Icons – Carbon Design System](https://www.carbondesignsystem.com/guidelines/icons/library/) 
+
+### Theory
+
+[Some Type Foundries Want to Restrict Usage of Their Fonts on Ethical Grounds. Will It Work? – Eye on Design](https://eyeondesign.aiga.org/some-type-foundries-want-to-restrict-usage-of-their-fonts-on-ethical-grounds-will-it-work/) 
+
+[Why Is Times New Roman The Default Typeface? - YouTube](https://www.youtube.com/watch?v=MK6VC_JxtE4) 
+
+[Ilmastofontti | Helsingin Sanomat](https://kampanjat.hs.fi/climatefont/index-fi.html) 
+
+[Miscellany № 89: 2020, year of the asterisk – Shady Characters](https://shadycharacters.co.uk/2020/11/miscellany-89-year-of-the-asterisk/) 
+
+[Letter & Spirit on Vimeo](https://vimeo.com/65248695) 
+
+[Why cartoon characters curse like this - YouTube](https://www.youtube.com/watch?v=a9ottUEiIm8) 
+
+[Quotes and Accents](http://quotesandaccents.com/) 
