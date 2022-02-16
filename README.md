@@ -2,7 +2,6 @@
 
 ### 🇦🇷 Argentina 
 
-
 - [Huerta Tipográfica](http://www.huertatipografica.com/en) 
 
 - [Twentyfive](https://betwentyfive.com/typefaces/) 
@@ -400,47 +399,3 @@ ___
 - [Kulim Park](https://noponies.github.io/Kulim-Park/) 
 
 - [Manrope](https://manropefont.com/) 
-
-### Commercial
-
-- [Lust Text ← Positype](https://positype.com/product/font/lust-text) 
-
-- [Pulpo - Typeface](https://www.floodfonts.com/pulpo/) 
-
-- [Gustavo — Lift Type](https://www.lift-type.fr/shop/typography/gustavo/) 
-
-- [Greed - Displaay Type Foundry](https://displaay.net/typeface/greed/) 
-
-- [Gooper Text by Very Cool Studio - Future Fonts](https://www.futurefonts.xyz/very-cool-studio/gooper-text) 
-
-- [MonoLisa - Get MonoLisa](https://www.monolisa.dev/buy) 
-
-- [NewsSerif is an editorial typeface family for headlines and copy. It’s the sister typeface to NewsSans.](https://charactertype.com/typefaces/newsserif/?utm_campaign=Fresh%20Fonts&utm_medium=email&utm_source=Revue%20newsletter) 
-
-- [TIGHTYPE   Peclet](https://tightype.com/typefaces/peclet) 
-
-- [Cosmos® Pro](https://www.bertholdtypes.com/font/cosmos/pro/) 
-
-- [TXT25 by Phantom Foundry - Future Fonts](https://www.futurefonts.xyz/phantom-foundry/txt25) 
-
-### Icons
-
-- [Material icons](https://fonts.google.com/icons) 
-
-- [Icons – Carbon Design System](https://www.carbondesignsystem.com/guidelines/icons/library/) 
-
-### Theory
-
-- [Some Type Foundries Want to Restrict Usage of Their Fonts on Ethical Grounds. Will It Work? – Eye on Design](https://eyeondesign.aiga.org/some-type-foundries-want-to-restrict-usage-of-their-fonts-on-ethical-grounds-will-it-work/) 
-
-- [Why Is Times New Roman The Default Typeface? - YouTube](https://www.youtube.com/watch?v=MK6VC_JxtE4) 
-
-- [Ilmastofontti | Helsingin Sanomat](https://kampanjat.hs.fi/climatefont/index-fi.html) 
-
-- [Miscellany № 89: 2020, year of the asterisk – Shady Characters](https://shadycharacters.co.uk/2020/11/miscellany-89-year-of-the-asterisk/) 
-
-- [Letter & Spirit on Vimeo](https://vimeo.com/65248695) 
-
-- [Why cartoon characters curse like this - YouTube](https://www.youtube.com/watch?v=a9ottUEiIm8) 
-
-- [Quotes and Accents](http://quotesandaccents.com/) 
