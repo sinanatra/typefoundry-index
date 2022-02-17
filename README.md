@@ -1,5 +1,7 @@
 ## Type Foundries
 
+A list of type foundries sorted by country, updated by Giacomo Nanni and Julian Peschel.
+
 ### 🇦🇷 Argentina 
 
 - [Huerta Tipográfica](http://www.huertatipografica.com/en) 
