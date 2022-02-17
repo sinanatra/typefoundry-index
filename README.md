@@ -178,7 +178,7 @@
 
 - [Fabrizio Schiavi](https://fsd.it/product-category/fonts/#shop) 
 
-- [http://www.giuliaboggio.xyz/bastardo.html](http://www.giuliaboggio.xyz/bastardo.html) 
+- [http://www.giuliaboggio.xyz/](http://www.giuliaboggio.xyz/) 
 
 - [Formula Type](https://www.formulatype.com/information/) 
 
