@@ -180,6 +180,8 @@
 
 - [http://www.giuliaboggio.xyz/bastardo.html](http://www.giuliaboggio.xyz/bastardo.html) 
 
+- [Formula Type](https://www.formulatype.com/information/) 
+
 ### 🇯🇵 Japan
 
 - [Dharma Type](http://dharmatype.com/) 
