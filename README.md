@@ -1,6 +1,6 @@
 ## Type Foundries
 
-A list of type foundries sorted by country, updated by Giacomo Nanni and Julian Peschel.
+A list of type foundries sorted by country.
 
 ### 🇦🇷 Argentina 
 
