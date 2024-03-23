@@ -60,7 +60,8 @@ A list of type foundries sorted by country.
 - [LIFT](http://www.lift-type.fr/) 
 - [Pizza Typefaces](https://typefaces.pizza/) 
 - [Police Studio](http://policestudio.fr/shop?#home) 
-- [Production Type](https://www.productiontype.com/) 
+- [Production Type](https://www.productiontype.com/)
+- [Proof of Words](https://proof-of-words.com/typefaces)
 - [SMeltery](http://www.smeltery.net/) 
 - [Welcome – Apex Type Foundry](https://www.apextypefoundry.com/) 
 
