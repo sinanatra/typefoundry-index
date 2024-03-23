@@ -198,7 +198,8 @@ A list of type foundries sorted by country.
 - [F37 Foundry](http://www.f37foundry.com/font-library) 
 - [FrosType](https://www.frostype.com/) 
 - [K-Type](http://www.k-type.com/) 
-- [Newlyn](https://newlyn.com/) 
+- [Newlyn](https://newlyn.com/)
+- [RP Digital Type Foundry](https://new.radimpesko.com/about)
 - [Talbot Type](http://www.talbottype.co.uk/typefaces/) 
 - [Type.land](http://www.type.land/) 
 
