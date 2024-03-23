@@ -114,7 +114,7 @@ A list of type foundries sorted by country.
 
 - [Schick Toikka](https://www.schick-toikka.com/)
 
-- [Stereo Typefaces]([https://www.schick-toikka.com/](https://www.stereotypefaces.com/)) 
+- [Stereo Typefaces](https://www.stereotypefaces.com/) 
 
 - [Neubau](https://neubauladen.com/) 
 
@@ -171,6 +171,8 @@ A list of type foundries sorted by country.
 ### 🇮🇹 Italy
 
 - [AlfaType Fonts Foundry](http://www.alfatypefonts.com/index.html) 
+
+- [Collletttivo](https://www.collletttivo.it/) 
 
 - [Resistenza](http://www.resistenza.es/typefaces/) 
 
