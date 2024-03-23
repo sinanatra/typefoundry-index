@@ -112,7 +112,9 @@ A list of type foundries sorted by country.
 
 - [Gruppo Due](https://gruppo-due.com/) 
 
-- [Schick Toikka](https://www.schick-toikka.com/) 
+- [Schick Toikka](https://www.schick-toikka.com/)
+
+- [Stereo Typefaces]([https://www.schick-toikka.com/](https://www.stereotypefaces.com/)) 
 
 - [Neubau](https://neubauladen.com/) 
 
