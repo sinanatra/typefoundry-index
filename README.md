@@ -55,7 +55,6 @@ A list of type foundries sorted by country.
 - [Apeloig Type Library](http://nouvellenoire.ch/products/a-abf-lineaire) 
 - [Blaze Type](https://blazetype.eu/) 
 - [Bureau Brut](https://bureaubrut.com/en/product-category/fonts/)
-- [Boulevard Type](https://www.boulevardtype.com/)
 - [Eliott Grunewald](https://eliottgrunewald.xyz/) 
 - [Inès Davodeau](https://inesdavodeau.com/Type-Shop) 
 - [LIFT](http://www.lift-type.fr/) 
