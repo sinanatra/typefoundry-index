@@ -2,6 +2,20 @@
 
 A list of type foundries sorted by country.
 
+### 📚 Collections
+- [Fontain](https://fontain.org/#@80) 
+- [FontsArena](https://fontsarena.com/) 
+- [Open Foundry](https://open-foundry.com/) 
+- [OSP (Open Source Publishing) →](http://osp.kitchen/foundry/) 
+- [Typeverything – Great fonts by cool designers](https://typeverything.com/) 
+- [Use & Modify](https://usemodify.com/) 
+- [⚧ LIBRE FONTS BY WOMXN](https://www.design-research.be/by-womxn/) 
+- [Kulim Park](https://noponies.github.io/Kulim-Park/) 
+- [Manrope](https://manropefont.com/) 
+- [Optician Sans](https://optician-sans.com/) 
+- [Recursive Sans & Mono](https://www.recursive.design/) 
+- [Violet Sans](https://github.com/violetoffice/violet_sans) 
+
 ### 🇦🇷 Argentina
 - [Huerta Tipográfica](http://www.huertatipografica.com/en) 
 - [Nodo Typefoundry](https://nodotypefoundry.com/catalogue/) 
@@ -218,17 +232,3 @@ A list of type foundries sorted by country.
 - [Templar Type](http://templar-type-foundry.tumblr.com/) 
 - [Type Supply](https://typesupply.com/) 
 - [XYZ Type](http://xyztype.com/) 
-
-### Collections
-- [Fontain](https://fontain.org/#@80) 
-- [FontsArena](https://fontsarena.com/) 
-- [Open Foundry](https://open-foundry.com/) 
-- [OSP (Open Source Publishing) →](http://osp.kitchen/foundry/) 
-- [Typeverything – Great fonts by cool designers](https://typeverything.com/) 
-- [Use & Modify](https://usemodify.com/) 
-- [⚧ LIBRE FONTS BY WOMXN](https://www.design-research.be/by-womxn/) 
-- [Kulim Park](https://noponies.github.io/Kulim-Park/) 
-- [Manrope](https://manropefont.com/) 
-- [Optician Sans](https://optician-sans.com/) 
-- [Recursive Sans & Mono](https://www.recursive.design/) 
-- [Violet Sans](https://github.com/violetoffice/violet_sans) 
