@@ -3,6 +3,7 @@
 A list of type foundries sorted by country.
 
 ### 📚 Collections
+- [FontShare](https://fontshare.com/)
 - [Fontain](https://fontain.org/#@80) 
 - [FontsArena](https://fontsarena.com/) 
 - [Open Foundry](https://open-foundry.com/) 
